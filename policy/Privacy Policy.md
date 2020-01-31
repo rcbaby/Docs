@@ -23,3 +23,5 @@ We are committed to protecting the security of your Personal Data. We use a vari
 </br>4.5 Sgallery assumes no responsibility when your personal information is disclosed due to unpredictable and inevitable risks of the internet, including without limitation: virus attack, hijacking, temporary site closure or server closure resulted from government control and inevitable technical defects of the software due to technical level at the time of development.
 ## 5 Contact us
 We welcome your comments or questions regarding this Privacy Policy. Please e-mail us at <u>FishingNetTech@yeah.net</u>.
+Vgrbhb
+bh
